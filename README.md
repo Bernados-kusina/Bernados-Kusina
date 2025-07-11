@@ -1,1 +1,1 @@
-# Bernados-Kusina
+# Bernados-s-kusina
